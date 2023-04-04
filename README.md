@@ -10,8 +10,7 @@ Edison's Home in Menlo Park
 
 .ve-media https://edisondigital.rutgers.edu/iiif/MA015 left
 
-Slept well—breakfasted clear up to my adams apple—took shawl strap and went to Boston with Damon with following memorandum of things to get.
-	Lavatar on the human face—Miss Clevelands book—Helosie by Rosseau—short neckties—Wilhelm Meister—Basket fruit—Sorrows of Werther—Madam Recamiers works—Diary books—pencils■Telephone documents■Mark Twains gummed Potentiality of Literature ie scrap book.—also book called "How success is won" containing life of Dr Vincent & something in about Minas father and your humble servitor. Found that only copy of Lavatar which I saw the other day had been sold to some one who was on the same lay as myself■Bought Disraeli's Curriosities of Literature instead—  Got Miss Cs book—Twains scrap book—Diary books, How Success is Won also fruit among which are some peaches which the vendor said came from California think
+Slept well—breakfasted clear up to my adams apple—took shawl strap and went to Boston with Damon with following memorandum of things to get. Lavatar on the human face—Miss Clevelands book—Helosie by Rosseau—short neckties—Wilhelm Meister—Basket fruit—Sorrows of Werther—Madam Recamiers works—Diary books—pencils■Telephone documents■Mark Twains gummed Potentiality of Literature ie scrap book.—also book called "How success is won" containing life of Dr Vincent & something in about Minas father and your humble servitor. Found that only copy of Lavatar which I saw the other day had been sold to some one who was on the same lay as myself■Bought Disraeli's Curriosities of Literature instead—  Got Miss Cs book—Twains scrap book—Diary books, How Success is Won also fruit among which are some peaches which the vendor said came from California think
     
 ### Page 2
 
