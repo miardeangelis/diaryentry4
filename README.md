@@ -1,4 +1,4 @@
-# Diary #3 
+# Diary #4 
 
 ## Menlo Park N.J. July 15, 1885
 
